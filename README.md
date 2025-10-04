@@ -1,23 +1,12 @@
 # XmasList2024
 
+iPod 5.5 generation (Black preferred)
+The iPod 5.5 generation is often considered the best for modding with Rockbox due to its superior sound quality, compatibility with flash storage upgrades up to 1TB, and ease of disassembly compared to later models.
+
+![iPod 5.5 generation](https://github.com/artofdarkness123/XmasList2025/blob/main/images/iFlash-Solo_500.jpg?raw=true)
 
 iFlash-Solo https://www.iflash.xyz/store/iflash-solo/
 
 ![iFlash-Solo](https://github.com/artofdarkness123/XmasList2025/blob/main/images/iFlash-Solo_500.jpg?raw=true)
 
-
-
-Rubbermaid Brute Trash Can Dolly (2-Pack)
-https://www.homedepot.com/p/316308853
-![Rubbermaid Brute Trash Can Dolly (2-Pack)](https://github.com/artofdarkness123/XmasList2024/blob/main/images/rubbermaid-commercial-products-trash-can-dollies.jpg?raw=true)
-
-
-Rubbermaid Brute 32 Gal. Grey Vented Trash Can with Lid (x2)
-https://www.homedepot.com/p/100342585
-![Rubbermaid Brute 32 Gal. Grey Vented Trash Can with Lid](https://github.com/artofdarkness123/XmasList2024/blob/main/images/rubbermaid-commercial-products-outdoor-trash-cans.jpg?raw=true)
-
----------------------
-Take the trashcan, lid, and dolly and spray paint the address on the house on them.
-![https://github.com/artofdarkness123/XmasList2024/blob/main/images/remove-stencil-1.jpg](https://github.com/artofdarkness123/XmasList2024/blob/main/images/remove-stencil-1.jpg?raw=true)
----------------------
 
