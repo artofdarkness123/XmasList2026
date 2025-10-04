@@ -2,7 +2,8 @@
 
 
 iFlash-Solo https://www.iflash.xyz/store/iflash-solo/
-![iFlash-Solo](https://www.iflash.xyz/wp-content/uploads/2016/03/iFlash-Solo_500.jpg)
+
+![iFlash-Solo](https://github.com/artofdarkness123/XmasList2025/blob/main/images/iFlash-Solo_500.jpg?raw=true)
 
 
 
