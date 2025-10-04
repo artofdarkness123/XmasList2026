@@ -1,4 +1,4 @@
-# XmasList2024
+# XmasList2025
 
 iPod 5.5 generation (Black preferred)
 The iPod 5.5 generation is often considered the best for modding with Rockbox due to its superior sound quality, compatibility with flash storage upgrades up to 1TB, and ease of disassembly compared to later models.
