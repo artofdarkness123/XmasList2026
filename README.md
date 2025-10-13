@@ -20,6 +20,7 @@ Install a towel rod in the upstairs bathroom
 ![Towel Rod](https://github.com/artofdarkness123/XmasList2025/blob/main/images/towel%20rod.jpg?raw=true)
 
 100% cotton HAND TOWELS (Need towel rod installed first)
+* Preferred colors: white, grey, blue, light blue, tan 
 ![Hand Towels](https://github.com/artofdarkness123/XmasList2025/blob/main/images/hand%20towels.jpeg?raw=true)
 
 Black Heavy Duty Outdoor Trash Can with Wheels and Attached Lid
