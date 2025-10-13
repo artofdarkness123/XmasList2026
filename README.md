@@ -16,6 +16,9 @@ Fancy extra virgin oilive oil
 * Italian or California in origin.
 ![EVOO](https://github.com/artofdarkness123/XmasList2025/blob/main/images/EVOO.png?raw=true)
 
+Install a towel rod in the upstairs bathroom
+![Towel Rod](https://github.com/artofdarkness123/XmasList2025/blob/main/images/towel%20rod.jpg?raw=true)
+
 Black Heavy Duty Outdoor Trash Can with Wheels and Attached Lid
 ![new trash can](https://github.com/artofdarkness123/XmasList2025/blob/main/images/hdx-commercial-trash-can.jpg?raw=true)
 
