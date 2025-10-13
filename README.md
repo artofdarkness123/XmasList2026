@@ -10,13 +10,19 @@ iFlash-Solo https://www.iflash.xyz/store/iflash-solo/
 
 ![iFlash-Solo](https://github.com/artofdarkness123/XmasList2025/blob/main/images/iFlash-Solo_500.jpg?raw=true)
 
+Fancy extra virgin oilive oil
+* something in a green or brown glass bottle
+* single origin
+* Italian or California in origin.
+![EVOO](https://github.com/artofdarkness123/XmasList2025/blob/main/images/EVOO.png?raw=true)
+
 Black Heavy Duty Outdoor Trash Can with Wheels and Attached Lid
 ![new trash can](https://github.com/artofdarkness123/XmasList2025/blob/main/images/hdx-commercial-trash-can.jpg?raw=true)
 
 ---------------------
 
 
-Take the trashcan and spray paint the address on the house on them.
+Take the trashcan and spray paint the address of the house on them.
 
 
 ![https://github.com/artofdarkness123/XmasList2024/blob/main/images/remove-stencil-1.jpg](https://github.com/artofdarkness123/XmasList2024/blob/main/images/remove-stencil-1.jpg?raw=true)
