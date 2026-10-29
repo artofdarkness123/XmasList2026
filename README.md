@@ -1,4 +1,4 @@
-# XmasList2025
+# XmasList2026
 
 <!-- 
 iPod 5.5 generation (Black preferred)
@@ -12,29 +12,37 @@ iFlash-Solo https://www.iflash.xyz/store/iflash-solo/
 ![iFlash-Solo](https://github.com/artofdarkness123/XmasList2025/blob/main/images/iFlash-Solo_500.jpg?raw=true) 
 -->
 
-Fancy extra virgin oilive oil
+1) Remove leaves from the gutters
+![Gutters](https://github.com/artofdarkness123/XmasList2026/blob/main/images/gutter-helmet-man-cleaning.jpg?raw=true)
+
+2) Portable Power Station. **At least 500wh (watt hours)**. I'd recommend go halves on this with someone else.
+
+This is so when the power goes out, I can plug in the xfinity cable modem and wifi router into it and keep working. 500wh should run the cable modem and wifi router all day. If there is battery left over I can use it overnight.
+
+You can find deals at Costco. Recommended brands I've seen are Jackery and Ecoflow. 
+
+See the video at the timestamp for ranking charts. Both videos are a good watch.
+
+A) https://www.youtube.com/watch?v=FfH4S1ttXiM&t=1166
+
+B) https://www.youtube.com/watch?v=qtFOSmIXvwg&t=1077
+
+![Jackery](https://github.com/artofdarkness123/XmasList2026/blob/main/images/Jackery_AC_SL1500_.jpg?raw=true)
+
+![Ecoflow](https://github.com/artofdarkness123/XmasList2026/blob/main/images/ecoFlow.png?raw=true)
+
+3) Ono roller (metal preferred but can get plastic). Blue or green
+https://www.amazon.com/dp/B079T416DB
+![Ono Roller](https://github.com/artofdarkness123/XmasList2026/blob/main/images/onoRoller.jpg?raw=true)
+
+Fancy extra virgin olive oil
 * something in a green or brown glass bottle
 * single origin
 * Italian or California in origin.
 ![EVOO](https://github.com/artofdarkness123/XmasList2025/blob/main/images/EVOO.png?raw=true)
 
-Install a towel rod in the upstairs bathroom
-![Towel Rod](https://github.com/artofdarkness123/XmasList2025/blob/main/images/towel%20rod.jpg?raw=true)
-
-100% cotton HAND TOWELS (Need towel rod installed first)
-* Preferred colors: white, grey, blue, light blue, tan 
-![Hand Towels](https://github.com/artofdarkness123/XmasList2025/blob/main/images/hand%20towels.jpeg?raw=true)
-
-Black Heavy Duty Outdoor Trash Can with Wheels and Attached Lid
-![new trash can](https://github.com/artofdarkness123/XmasList2025/blob/main/images/hdx-commercial-trash-can.jpg?raw=true)
-
 ---------------------
 
-
-Take the trashcan and spray paint the address of the house on them.
-
-
-![https://github.com/artofdarkness123/XmasList2024/blob/main/images/remove-stencil-1.jpg](https://github.com/artofdarkness123/XmasList2024/blob/main/images/remove-stencil-1.jpg?raw=true)
 
 
 ---------------------
