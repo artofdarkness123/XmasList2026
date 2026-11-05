@@ -31,15 +31,11 @@ B) https://www.youtube.com/watch?v=qtFOSmIXvwg&t=1077
 
 ![Ecoflow](https://github.com/artofdarkness123/XmasList2026/blob/main/images/ecoFlow.png?raw=true)
 
-3) Ono roller (metal preferred but can get plastic). Blue or green
-https://www.amazon.com/dp/B079T416DB
-![Ono Roller](https://github.com/artofdarkness123/XmasList2026/blob/main/images/onoRoller.jpg?raw=true)
+3) Crawlspace exploration
 
-Fancy extra virgin olive oil
-* something in a green or brown glass bottle
-* single origin
-* Italian or California in origin.
-![EVOO](https://github.com/artofdarkness123/XmasList2025/blob/main/images/EVOO.png?raw=true)
+* I have a go pro and your RC car. I want to strap the camera to the RC car and drive it underneath the house. I want to check for holes and how well the insulation was installed. I want to show Mom underneath the house. No one has to go under the house but I do need someone with me to open up the crawlspace and put the RC car under the house. I will drive it around and film. 
+
+![rc car](https://github.com/artofdarkness123/XmasList2026/blob/main/images/RC%20car%20and%20GOPRO.jpg?raw=true)
 
 ---------------------
 
